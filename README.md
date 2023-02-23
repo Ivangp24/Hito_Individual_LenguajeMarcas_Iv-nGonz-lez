@@ -1,0 +1,1 @@
+# Hito_Individual_LenguajeMarcas_Iv-nGonz-lez
